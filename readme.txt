@@ -1,1 +1,0 @@
-leeme antes de comenzar
